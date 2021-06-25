@@ -7,5 +7,3 @@ Hi 👋
 **Twitter: [@wongzigii](https://twitter.com/wongzigii)**
 
 **Instagram: [@wongzigii](https://www.instagram.com/wongzigii/)**
-
-> 软件开发没有银弹
